@@ -1,4 +1,5 @@
 # readme
 the way to find out 9ifast
 
-my.9ifast.co
+
+[点击前往](https://my.9ifast.co)
