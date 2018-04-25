@@ -1,5 +1,7 @@
-# readme
-the way to find out 9ifast
+# 地址发布
+按下  __**`Ctrl+D`**__  收藏此页面
 
+**目前可用域名：**
+# * [uuuk.space   ←点击前往](https://uuuk.space)
 
-[GO TO 9IFAST !](https://my.9ifast.co)
+如果以上地址不可使用，请发任意内容到自动查询网址邮箱 kefu@9ifast.com 获取最新地址
